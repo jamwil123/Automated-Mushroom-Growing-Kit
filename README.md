@@ -1,1 +1,0 @@
-# Automated-Mushroom-Growing-Kit
